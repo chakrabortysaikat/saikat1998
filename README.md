@@ -1,4 +1,6 @@
 # Myself Saikat, Hello :wave:
+Thank You for being here. 
+Connect Me: 
 ![Saikat Photo](saikat_chakraborty.png "Saikat Chakraborty")
 - 👀 I’m interested in ...
 - 🌱 I’m currently learning ...
